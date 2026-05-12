@@ -1,4 +1,4 @@
-#  
+#  custom adopt me Script offers the most advanced adopt me Script, with infinite resources and god mode. Perfect for dominating any match.
 
 
 
